@@ -1,3 +1,3 @@
-# Acampando e Adorando
+# Esquadrão 315
 
-Igreja do Evangelho Quadrangular `Região 315`
+Grupo de jovens e adolescentes da Igreja do Evangelho Quadrangular `Região 315`
